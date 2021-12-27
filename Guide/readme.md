@@ -5,5 +5,9 @@
 
 [How to Flare Brake Lines for Your Truck, Car, or SUV](https://youtu.be/fQnt08Yjti0)
 
+# Tool
+## Turret Type
+[How To Double Flare Brake Lines Perfectly With Eastwood Double Flare Tool V8TV Video](https://youtu.be/AnQJIjM0EBo)
+
 # Safety
 [⭐ The DANGERS Of Flaring Brake Lines The WRONG WAY!!!](https://youtu.be/if5lAk54z8c)
